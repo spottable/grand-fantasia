@@ -1,0 +1,1 @@
+Information based off of the MMO Grand Fantasia hosted by Aeria Games
